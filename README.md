@@ -1,1 +1,1 @@
-https://Mona3003.github.io/rsschool-cv/cv
+https://mona3003.github.io/rsschool-cv/cv
